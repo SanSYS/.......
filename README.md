@@ -1,1 +1,1 @@
-Сюда ходи =) [http://hot-chto-pishi.etolstoy.com/](http://hot-chto-pishi.etolstoy.com/)
+Сюда ходи =) [ha-plohoy.etolstoy.com](http://ha-plohoy.etolstoy.com/)
